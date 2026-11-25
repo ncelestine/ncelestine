@@ -35,4 +35,4 @@ IT student (BSc Internet Technology, in progress) based in Milton, Ontario, work
 
 ## Contact
 
-[LinkedIn](https://linkedin.com/in/your-profile) (link coming soon)
+[LinkedIn](https://www.linkedin.com/in/nathan-celestine-0bb712192)
